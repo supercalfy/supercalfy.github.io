@@ -67,3 +67,65 @@ Substitute Soul Reaper Ichigo Kurosaki spends his days fighting against Hollows,
 Ichigo's vigilante routine is disrupted by the sudden appearance of Asguiaro Ebern, a dangerous Arrancar who heralds the return of Yhwach, an ancient Quincy king. Yhwach seeks to reignite the historic blood feud between Soul Reaper and Quincy, and he sets his sights on erasing both the human world and the Soul Society for good.
 
 Yhwach launches a two-pronged invasion into both the Soul Society and Hueco Mundo, the home of Hollows and Arrancar. In retaliation, Ichigo and his friends must fight alongside old allies and enemies alike to end Yhwach's campaign of carnage before the world itself comes to an end.
+
+---
+## 6. Blue Lock
+
+
+
+<img src="https://cdn.myanimelist.net/images/anime/1258/126929.webp" width= 300>
+
+
+Yoichi Isagi was mere moments away from scoring a goal that would have sent his high school soccer team to the nationals, but a split-second decision to pass the ball to his teammate cost him that reality. Bitter, confused, and disappointed, Isagi wonders if the outcome would have been different had he not made the pass. When the young striker returns home, an invitation from the Japan Football Union awaits him. Through an arbitrary and biased decision-making process, Isagi is one of three hundred U-18 strikers selected for a controversial project named Blue Lock.
+
+The project's ultimate goal is to turn one of the selected players into the star striker for the Japanese national team. To find the best participant, each diamond in the rough must compete against others through a series of solo and team competitions to rise to the top. Putting aside his ethical objections to the project, Isagi feels compelled to fight his way to the top, even if it means ruthlessly crushing the dreams of 299 aspiring young strikers.
+
+---
+## 7. Akiba Maid War
+
+
+
+<img src="https://cdn.myanimelist.net/images/anime/1217/129604.webp" width= 300>
+
+
+The innocent Nagomi Wahira has always admired the cute girls serving at maid cafes. Hoping to fulfill her dream of becoming one, she moves to Akihabara to work at the maid cafe Ton Tokoton.
+
+Nagomi's first day seems completely normal—until she has to run an "errand" at a rival maid cafe along with her fellow recruit, the mature Ranko Mannen. There, things quickly go south, and Nagomi soon gets her first taste of Akihabara's violent maid wars. As she watches Ranko calmly battle her way through a horde of gun- and knife-wielding maids, Nagomi realizes that maid cafes are drastically unlike what she had envisioned.
+
+While struggling to reconcile her expectations with the harsh reality she finds herself in, Nagomi searches for the enjoyment she once saw in the lives of maids.
+
+---
+8. The Eminence in Shadow
+
+
+
+<img src="https://cdn.myanimelist.net/images/anime/1874/121869.webp" width= 300>
+
+
+For as long as he can remember, Minoru Kagenou has been fixated on becoming as strong as possible, which has led him to undertake all kinds of rigorous training. This wish, however, does not stem from a desire to be recognized by others; rather, Minoru does everything he can to blend in with the crowd. So, while pretending to be a completely average student during the day, he arms himself with a crowbar and ruthlessly thrashes local biker gangs at night. Yet when Minoru finds himself in a truck accident, his ambitions seemingly come to a sudden end. In his final moments, he laments his powerlessness—no matter how much he trained, there was nothing he could do to overcome his human limitations.
+
+But instead of dying, Minoru reawakens as Cid, the second child of the noble Kagenou family, in another world—one where magic is commonplace. With the power he so desired finally within his grasp, he dons the moniker "Shadow" and establishes Shadow Garden: a group whose sole purpose is to combat the enigmatic Cult of Diablos, an organization born from Cid's imagination. However, as Shadow Garden grows in both membership and influence, it becomes increasingly apparent that the Cult of Diablos is not as fictional as Cid had intended.
+
+---
+9. More Than a Married Couple, But Not Lovers.
+
+
+
+<img src="https://cdn.myanimelist.net/images/anime/1713/126442.webp" width= 300>
+
+
+Third-year high school student Jirou Yakuin is in love with his childhood friend and classmate, Shiori Sakurazaka. Thus, he hopes to be paired with her for the "marriage practical": their school's practice of randomly selecting boy-girl pairs to live as pretend married couples while monitoring and rating them on how close they have gotten. Meanwhile, the lively Akari Watanabe wants to be assigned to her crush, the popular and good-looking Minami Tenjin.
+
+Much to their dismay, Jirou and Akari find out that not only have they been paired together, but so have Shiori and Minami! Determined to be with their crushes, Jirou and Akari strive to earn as many points as possible, as the top 10 pairs earn the right to switch their partners—so long as both couples agree.
+
+---
+10. To Your Eternity Season 2
+
+
+
+<img src="https://cdn.myanimelist.net/images/anime/1271/127700.webp" width= 300>
+
+
+Having seen enough death and tragedy, the immortal Fushi secludes himself on an island, protecting humanity from Nokkers. However, instead of attacking Fushi, Nokkers begin targeting the settlements outside of his reach in hopes of luring him out. Soon, the deceased warrior Hayase's descendants, commonly known as the Guardians, find Fushi.
+
+Inspired by how Fushi protected people from the Nokkers on Jananda Island years ago, the Guardians have grown a considerable following and are recognized throughout the world. Initially reluctant, Fushi allows the Guardians to accompany him to the site of the Nokkers' recent attack. In their village, Fushi meets a few familiar faces who become his valuable allies. But as the conflict with the Nokkers only leads to more loss, Fushi must find the inner strength to face his inevitable sorrow.
