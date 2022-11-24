@@ -95,7 +95,7 @@ Nagomi's first day seems completely normal—until she has to run an "errand" at
 While struggling to reconcile her expectations with the harsh reality she finds herself in, Nagomi searches for the enjoyment she once saw in the lives of maids.
 
 ---
-8. The Eminence in Shadow
+## 8. The Eminence in Shadow
 
 
 
@@ -107,7 +107,7 @@ For as long as he can remember, Minoru Kagenou has been fixated on becoming as s
 But instead of dying, Minoru reawakens as Cid, the second child of the noble Kagenou family, in another world—one where magic is commonplace. With the power he so desired finally within his grasp, he dons the moniker "Shadow" and establishes Shadow Garden: a group whose sole purpose is to combat the enigmatic Cult of Diablos, an organization born from Cid's imagination. However, as Shadow Garden grows in both membership and influence, it becomes increasingly apparent that the Cult of Diablos is not as fictional as Cid had intended.
 
 ---
-9. More Than a Married Couple, But Not Lovers.
+## 9. More Than a Married Couple, But Not Lovers.
 
 
 
@@ -119,7 +119,7 @@ Third-year high school student Jirou Yakuin is in love with his childhood friend
 Much to their dismay, Jirou and Akari find out that not only have they been paired together, but so have Shiori and Minami! Determined to be with their crushes, Jirou and Akari strive to earn as many points as possible, as the top 10 pairs earn the right to switch their partners—so long as both couples agree.
 
 ---
-10. To Your Eternity Season 2
+## 10. To Your Eternity Season 2
 
 
 
